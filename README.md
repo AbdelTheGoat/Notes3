@@ -1,5 +1,3 @@
-# Je t'aime❤️❤️❤️❤️
+# Ma reine, aujourd'hui j'ai été trop méchant avec toi...
 
-# profite bien de ce dernier je t'aime parce que ce sera le dernier jusqu'à nouvel ordre puisque je fais grève!!!
-
-![image](https://github.com/AbdelTheGoat/Notes3/assets/155133525/cbe48fa3-7075-4823-923d-c2a9073565b7)
+# Désolé, je t'aime tellement... Si tu m'excuse dit envoie moi un emoji cœur. Je t'aime !!!!
