@@ -1,3 +1,3 @@
 # Ma reine, aujourd'hui j'ai été trop méchant avec toi...
 
-# Désolé, je t'aime tellement... Si tu m'excuse dit envoie moi un emoji cœur. Je t'aime !!!!
+# Désolé, je t'aime tellement... Si tu m'excuse, envoie moi un emoji cœur. Je t'aime, il y a que toi dans ma vie !!!!
